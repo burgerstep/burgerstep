@@ -41,6 +41,8 @@
 <i>Peep our other pages</i>
 <img align="center" src="https://pix.crd.co/assets/images/gallery08/01768f96.gif?v=c10c78ee">
   <br/>
+<sup><i>You might recognize us lol</i></sup>
+  <br/>
 <a href="https://github.com/xxhe4rtstringz"><img align="center" width="50" hspace="5" src="https://d275t8dp8rxb42.cloudfront.net/skills/Meowscarada/Flower%20Trick.png"></a>
 <a href="https://github.com/husofulvescens"><img align="center" width="50" hspace="5" src="https://d275t8dp8rxb42.cloudfront.net/skills/Meowscarada/Night%20Slash.png"></a>
 <a href="https://github.com/eik0n0klasmic"><img align="center" width="50" hspace="5" src="https://d275t8dp8rxb42.cloudfront.net/skills/Meowscarada/Double%20Team.png"></a>
