@@ -26,7 +26,7 @@
 <img align="center" src="https://biscuit.crd.co/assets/images/gallery89/ea983dcf.gif?v=cc1c6dfa">
   <br/>
 <img align="center" src="https://pix.crd.co/assets/images/gallery08/9028d920.png?v=c10c78ee">
-<sub>Yes I am 007N7 + Meowscarada please don't be weird about it</sub>
+<sub>Yes 007N7 + Meowscarada are my origins please don't be weird about it</sub>
 <img align="center" src="https://pix.crd.co/assets/images/gallery08/9028d920.png?v=c10c78ee">
   <br/>
 <img align="center" src="https://biscuit.crd.co/assets/images/gallery89/ea983dcf.gif?v=cc1c6dfa">
