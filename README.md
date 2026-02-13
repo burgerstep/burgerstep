@@ -1,4 +1,6 @@
 <p align="center">
+<img align="center" width="415" src="https://spotify-github-profile.kittinanx.com/api/view?uid=jayy2007&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=f7afd3&bar_color_cover=false">
+  <BR>
 <img align="center" src="https://autism.crd.co/assets/images/gallery01/84f3f33e.png?v=d6547f5c">
   <br>
 <img src="https://autism.crd.co/assets/images/gallery02/939f07ee.png?v=d6547f5c">
