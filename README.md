@@ -13,6 +13,7 @@ $\text{\color{#f9fdc6} im weird yelling @ me wont change that }$
 </br>
 <details>
   <summary>$\text{\color{#d6fcfd} stamps yay! }$</summary>
+  <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery55/cb745525.png?v=3fc8f5cd">
   <img src="https://gifcity.carrd.co/assets/images/gallery53/668c399e.jpg?v=3fc8f5cd">
 <img src="https://gifcity.carrd.co/assets/images/gallery55/70b30fd3.png?v=3fc8f5cd">
@@ -47,5 +48,6 @@ $\text{\color{#f9fdc6} im weird yelling @ me wont change that }$
   <img src="https://adriansblinkiecollection.neocities.org/stamps/h5.gif">
 <img src="https://adriansblinkiecollection.neocities.org/stamps/e31.gif">
   <img src="https://adriansblinkiecollection.neocities.org/stamps/h21.gif">
+  </p>
 
 </details>
