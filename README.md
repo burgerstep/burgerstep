@@ -61,6 +61,7 @@ $\text{\color{#f9fdc6} im weird yelling @ me wont change that }$
 <img src="https://adriansblinkiecollection.neocities.org/stamps/e122.gif">
     <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/7c1f48db-1437-4ac3-b660-f458c8b95bd1/dd4jmh6-d7118991-debd-44c7-a5d5-26155f63b9d0.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzdjMWY0OGRiLTE0MzctNGFjMy1iNjYwLWY0NThjOGI5NWJkMVwvZGQ0am1oNi1kNzExODk5MS1kZWJkLTQ0YzctYTVkNS0yNjE1NWY2M2I5ZDAucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.kl-wt-jOZiu06RN_doTvIWQLZvqvLtJOh_2FVozXp3M">
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3e353626-9d23-4def-bc8e-b730e37e1561/ddacm70-1ca761e7-da66-498f-987c-877672d80906.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzNlMzUzNjI2LTlkMjMtNGRlZi1iYzhlLWI3MzBlMzdlMTU2MVwvZGRhY203MC0xY2E3NjFlNy1kYTY2LTQ5OGYtOTg3Yy04Nzc2NzJkODA5MDYucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.L-twc6MpzxiuQRpZA9qU97CEylCIBPYDS_-tN6O73vY">
+    <img src="https://graphic.neocities.org/tumblr_inline_p5st4wSFTJ1tbwrjk_500.png">
 <img src="https://64.media.tumblr.com/a97a1a62f291898c66bbf0854cbb1cb1/tumblr_pgg9rbxPvl1xzybrpo2_100.png">
     <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/8c4d33f5-6275-4af8-ac05-6fa7b89c4d9c/dd7mhg9-92c57742-20da-4caf-800a-cdccbf52d8be.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzhjNGQzM2Y1LTYyNzUtNGFmOC1hYzA1LTZmYTdiODljNGQ5Y1wvZGQ3bWhnOS05MmM1Nzc0Mi0yMGRhLTRjYWYtODAwYS1jZGNjYmY1MmQ4YmUucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.wzTIG1C-TCCgJsnc5s5D0_T2uJvKKDoyTO10qnazuVI">
 <img src="https://64.media.tumblr.com/2235ec0048440502661f6e479d2046d6/tumblr_inline_pdyu8oMFEG1v11djx_500.gif">
@@ -68,7 +69,6 @@ $\text{\color{#f9fdc6} im weird yelling @ me wont change that }$
 <img src="https://orig00.deviantart.net/e110/f/2018/215/8/0/i_wanna_get_better__by_misstoxicslime-dcj5f5m.png">
     <img src="https://raining-starss.neocities.org/hoot%20(6).png">
 <img src="https://circusbabey.carrd.co/assets/images/gallery01/1a4cb461.gif?v61763866152851">
-    <img src="https://graphic.neocities.org/tumblr_inline_p5st4wSFTJ1tbwrjk_500.png">
 <img src="https://circusbabey.carrd.co/assets/images/gallery02/17c9505b.jpg?v61763866152851">
 <img src="https://raining-starss.neocities.org/pastel%20(13).gif">
 <img src="https://linksontheshore.carrd.co/assets/images/image35.gif?v=3bf90ed4">
